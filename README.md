@@ -1,5 +1,7 @@
 # **Roobet Promo Code HELLABET - Get an Exclusive $5 Free Bet**
 
+The Roobet promo code is HELLABET. By using our Roobet bonus code 2025 you can claim an exclusive sports and casino bonus. Using the Roobetpromocode means you can receive an exclusive 20% cashback and $5/CA$7/NZ$8/₹420 free bet. You must enter the Roobet promo code 2025 in the registration form.
+
 Roobet, one of the leading online crypto casinos, offers exciting promotional codes that provide new and existing users with fantastic bonuses. Whether you're looking to unlock cashback offers, free bets, or exclusive rewards, [Roobet](https://go.roobet.com/visit/?bta=35355&nci=6441) promo codes are your gateway to maximizing your experience on the platform.
 
 ## Latest Roobet Promo Codes
